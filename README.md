@@ -1,1 +1,1 @@
-Created in cooperation Ismail Nouari
+Created in cooperation with Ismail Nouari
